@@ -1,4 +1,5 @@
-## Hi there 👋
+## ¡Hola! 👋 Soy Ebert 😀😀
+
 -  Nombre: Ebert Mirko Escobar Gonzales 😎
 -  Estudio Ingenieria en Sistemas  💻🖱️
 -  Actualmente estoy aprendiendo Sistemas de informacio 1 👨‍💻
